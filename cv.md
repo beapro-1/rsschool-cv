@@ -1,7 +1,6 @@
 # CURRICULUM VITAE
 ## Aliaksandr Ulasik
 
-
 **Tel.** +375295097266 (Telegram, WhatsApp, Viber) \
 **Email** beaprotranser@gmail.com \
 **Facebook** [https://www.facebook.com/alexandervlasik](https://www.facebook.com/alexandervlasik) \
