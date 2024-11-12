@@ -1,1 +1,1 @@
-# rsschool_cv
+https://beapro-1.github.io/rsschool_cv/cv
